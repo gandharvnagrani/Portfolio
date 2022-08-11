@@ -1,3 +1,3 @@
 ## Personal Portfolio
 
-![Portfolio Website](https://drive.google.com/file/d/1lxNvBhXVidmW2k_B1MmZ27GNxRCI0uV9/view?usp=sharing)
+![Portfolio Website](https://drive.google.com/file/d/1LmpO8CX0aLEyDYtvr-5uYtigk0RLBGLc/view?usp=sharing)
